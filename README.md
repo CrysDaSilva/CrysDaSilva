@@ -1,8 +1,14 @@
 ##### 💕Sejam bem-vindos ao meu mundo!💕
 
-![AI](https://miro.medium.com/max/7728/1*Ab8SnQ0cKCO7SUmTuqLKMg.jpeg)
+<img src="https://miro.medium.com/max/7728/1*Ab8SnQ0cKCO7SUmTuqLKMg.jpeg" width="100xp">
 
 ##### 💫CRISTIANA SILVA💫 
+###### Sou etudante de Segurança da Informação, formada em Licenciatura em Matemática e estudante da DIO.
+- 📞 Fone/whats: +55 51 991009112 ...
+- 📧 Email:cryssilva1503@gmail.com
+
+[linkdin](https://www.linkedin.com/in/cristiana-silva-4890a211b)
+  
 - 🔭 I’m currently working on sales...
 - 🌱 I recently started studying ...
 - 👯 I’m looking work in this area ...
