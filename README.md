@@ -1,8 +1,4 @@
-## 💫CRISTIANA SILVA💫 
-
-<!--
-**CrysDaSilva/CrysDaSilva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+# 💫CRISTIANA SILVA💫 
 - 🔭 I’m currently working on sales...
 - 🌱 I recently started studying ...
 - 👯 I’m looking work in this area ...
