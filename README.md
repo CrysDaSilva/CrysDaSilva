@@ -1,4 +1,8 @@
-#### 💫CRISTIANA SILVA💫 
+### Sejam bem-vindos ao meu mundo!
+
+![CatHissGIF](https://github.com/CrysDaSilva/CrysDaSilva/assets/167590118/87659731-0192-44e4-b1fc-ad243825853b)
+
+##### 💫CRISTIANA SILVA💫 
 - 🔭 I’m currently working on sales...
 - 🌱 I recently started studying ...
 - 👯 I’m looking work in this area ...
