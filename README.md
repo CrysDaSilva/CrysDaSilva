@@ -1,6 +1,5 @@
-### Sejam bem-vindos ao meu mundo!
+##### Sejam bem-vindos ao meu mundo!
 
-![Animedark](https://www.deviantart.com/cr8t1ntev/art/Dark-Anime-girl-364313108)
 ![SchoolWorkGIF](https://github.com/CrysDaSilva/CrysDaSilva/assets/167590118/0aa1c98a-719e-4d2d-b957-50040e68aaaa)
 
 ##### 💫CRISTIANA SILVA💫 
