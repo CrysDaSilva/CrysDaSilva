@@ -1,6 +1,7 @@
 ### Sejam bem-vindos ao meu mundo!
 
-![CatHissGIF](https://github.com/CrysDaSilva/CrysDaSilva/assets/167590118/87659731-0192-44e4-b1fc-ad243825853b)
+![Animedark](https://www.deviantart.com/cr8t1ntev/art/Dark-Anime-girl-364313108)
+![SchoolWorkGIF](https://github.com/CrysDaSilva/CrysDaSilva/assets/167590118/0aa1c98a-719e-4d2d-b957-50040e68aaaa)
 
 ##### 💫CRISTIANA SILVA💫 
 - 🔭 I’m currently working on sales...
