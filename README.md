@@ -1,6 +1,6 @@
 ##### 💕Sejam bem-vindos ao meu mundo!💕
 
-![anme](https://www.deviantart.com/cr8t1ntev/art/Dark-Anime-girl-364313108)
+![AI](https://miro.medium.com/max/7728/1*Ab8SnQ0cKCO7SUmTuqLKMg.jpeg)
 
 ##### 💫CRISTIANA SILVA💫 
 - 🔭 I’m currently working on sales...
